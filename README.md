@@ -51,7 +51,7 @@
 - 📧 akudovich@gmail.com  
 - 📱 +995 568 33-44-82  
 - 💬 [Telegram](https://t.me/serg_akudovich)  
-- 🌐 [LinkedIn](https://linkedin.com/in/serg-akudovich)
+- 🌐 [LinkedIn](https://linkedin.com/in/akudovich)
 
 ---
 
